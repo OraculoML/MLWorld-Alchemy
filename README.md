@@ -1,5 +1,5 @@
 # Alchemy
-Searching the perfect mix of (PIA) People & Ideas and Attitudes. 
+I am completly lost here. Trying to make sense of it all. 
 
 J.Jacques Rousseau on his "Discourse on the Origin and Basis of Inequality Among Men:
 
